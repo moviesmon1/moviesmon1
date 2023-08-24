@@ -1,0 +1,214 @@
+<!DOCTYPE html><html lang="en-in"><head>
+
+<meta name="language" content="en-in">
+
+<title>Moviesmon 2023 | Download Moviesmon Tamil 720p Movies</title>
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<meta name="description" content="Moviesmon is a public torrent website which leaks Tamil movies online. #Moviesmon website uploads the pirated versions of Tamil, Malayalam and Telugu Movies.">
+<meta name="keywords" content="Moviesmon,Moviesmon 2022,Moviesmon 2021,Moviesmon dubbed,isaimini Moviesmon,Moviesmon com,Moviesmon 2020,Moviesmon tamil,Moviesmon .com,Moviesmon hollywood,Moviesmon 2019,Moviesmon isaimini,tamilyogi isaimini 2021 tamil movies download,movies da,Moviesmon 2021.com,tamil Moviesmon,tamil movies download 2022,Moviesmon 2021 tamil,Moviesmon 2021 tamil movies,moviesdaweb com,Moviesmon.com,moviesdaa,Moviesmon. com,Moviesmon.net,Moviesmon tamil,moviesdamob,isaiminimob">
+<meta name="classification" content="Moviesmon,Moviesmon 2022,Moviesmon 2021,Moviesmon dubbed,isaimini Moviesmon,Moviesmon com,Moviesmon 2020,Moviesmon tamil,Moviesmon .com,Moviesmon hollywood,Moviesmon 2019,Moviesmon isaimini,tamilyogi isaimini 2021 tamil movies download,movies da,Moviesmon 2021.com,tamil Moviesmon,tamil movies download 2022,Moviesmon 2021 tamil,Moviesmon 2021 tamil movies,moviesdaweb com,Moviesmon.com,moviesdaa,Moviesmon. com,Moviesmon.net,Moviesmon tamil,moviesdamob,isaiminimob">
+<meta name="distribution" content="India">
+<meta name="rating" content="General">
+<meta name="revisit-after" content="1 days">
+<link rel="shortcut icon" href="images/Moviesmon.png">
+<link rel="dns-prefetch" href="//s.w.org">
+<link rel="next" href="https://anjeshpatel.in/">
+<link rel="canonical" href="https://anjeshpatel.in/">
+
+<meta http-equiv="X-UA-Compatible" content="IE=edge,chrome=1">
+<meta http-equiv="Content-Language" content="en-IN">
+<meta name="googlebot" content="index, follow">
+<meta name="GOOGLEBOT" content="index follow">
+<meta name="robots" content="index, follow, max-image-preview:large, max-snippet:-1, max-video-preview:-1">
+
+<meta property="og:locale" content="en_IN">
+<meta property="og:type" content="article">
+<meta property="og:title" content="Moviesmon - Your Ultimate Destination for Tamil Movies">
+<meta property="og:description" content="Moviesmon: Your Ultimate Destination for Tamil Movies Online. Watch Latest Tamil Movies for Free on Moviesmon.">
+<meta property="og:url" content="https://anjeshpatel.in/">
+<meta property="og:site_name" content="Moviesmon">
+<meta property="article:author" content="https://facebook.com/Moviesmon">
+<meta property="og:image" content="images/Moviesmon-main.png">
+<meta property="og:image:width" content="1200">
+<meta property="og:image:height" content="749">
+
+<link rel="STYLESHEET" type="text/css" href="/style.css" media="all,handheld">
+<script src="js/red.js" type="text/javascript"></script>
+
+</head><body>
+    
+    <style>body {padding: 0; margin:0 auto; max-width: 700px; font-family: Verdana; font-weight: normal; background: #f9f9f9; font-size: 13px;}
+
+a {text-decoration : none; color: #3b3b3b;}
+a {color:#3b3b3b;}
+
+input,textarea,select{margin:1px;border:1px solid #ddd;max-width:80%;background:#fff;color:grey;font-size:small;}
+
+input[type='submit']{color : #6d6d6d;
+background-color : #fbfbfb;
+background-image : url(images/main.gif);
+background-repeat : repeat-x;
+border : 1px solid #ededed;margin:1px;}
+input:hover, input:focus{  -moz-box-shadow: 0 0 10px #6699ff;
+-webkit-box-shadow: 0 0 10px #6699ff;
+box-shadow: 0px 0px 10px #6699ff;}
+
+
+.line{background-color: #308bcf; color: #ffffff; background-image: url(images/header.gif); font-weight: bold; padding: 10px 10px 10px 10px; text-align: center; text-decoration: none; margin-bottom: 0px; font-size: small;}
+
+
+.Adz {color: red; font-weight: bold; font-size: small; 
+}
+
+.Adz a { color:  red;}
+
+.aut{border-radius:8px; color:#fff; padding:5px 5px; border-color:#95d1ec; border-style:groove ridge ridge groove; border-width:2px; background:#36a8da repeat-x 50%top}
+
+.aut:before{height:25px; margin-top:-4px; margin-bottom:-19px; display:block;}
+
+.aut a{color:#fff; border-bottom:1px dotted #b5def0}
+
+.aut a:hover{color:#d8eff8; border-bottom:1px dotted #b5def0; background:transparent}
+
+.Tag{padding: 3px; background-color: #eff3f6;}
+
+.form{margin: 1px; padding: 3px; background: url(images/white.gif) repeat-x top; border: 1px solid #ececec; }
+
+.Adz a img{ height:auto; width:auto; max-width:99% }
+
+
+.none{display:noe}
+
+ .Moviesmon a img {display:one }
+
+
+.f {color: #4f4f4f ; background: #f9f9f9; padding-top: 8px; padding-left: 3px; padding-bottom: 2px; font-size: 14px; text-align: left; border-bottom: 1px dotted #afcddc; }
+
+
+
+.tblimg {padding:1px 1px 2px 2px;
+text-align : left;
+}
+
+.tblimg img {padding:1px;
+border : 1px solid silver;
+}
+
+
+.moviesdada{margin: 1px; padding: 3px; background: url(images/white.gif) repeat-x top; border: 1px solid #ececec; }
+
+
+.moviesdada a { color:  red;}
+
+.bg{border-left: 4px solid #c3eff2; padding: 0 0 4px 6px; margin: 0 2px 0 4px;}
+
+.bf { border-left: 4px solid #c3eff2; padding: 0 0 4px 6px; margin: 0 2px 0 4px; }
+
+.bottom { color: #d26c24; background: #ede9dd url(images/title_back.gif) repeat-x; position: relative; z-index: 1; font-weight: bold; padding: 10px; border-bottom: 1px solid #ddd7c6; text-shadow: 0px 1px 0px #ffffff; box-shadow: inset 0px 1px 0px rgba(255,255,255,0.4); -moz-box-shadow: inset 0px 1px 0px rgba(255,255,255,0.4); -webkit-box-shadow: inset 0px 1px 0px rgba(255,255,255,0.4); }
+
+
+.de { background-color: #f1f1f1; color: #444444; padding: 3px; font-size: 13px; font-family: arial,sans-serif; margin-top: 0px; margin-bottom: 0px; padding-left: 5px; padding-top: 5px; }
+
+
+.ok, .msg { background: #fff8cc; border: 1px solid #ffe222; padding: 10px; font-weight: normal; color: #000; }
+
+
+.error { background: #fff8cc; border: 1px solid #ffe222; padding: 10px; font-weight: normal; color: red; }
+
+.isai { background-color: #f1f1f1; color: #444444; padding: 3px; font-size: 13px; font-family: arial,sans-serif; margin-top: 0px; margin-bottom: 0px; padding-left: 5px; padding-top: 5px; }</style>
+
+<script data-cfasync="false" type="text/javascript"></script>
+<script data-cfasync="false" type="text/javascript"></script>
+
+<div class="line"><font size="4px">Moviesmon.com</font><br><small>Name Of Quality</small></div>
+
+<div class="bottom" align="center"><h2>Moviesmon 2023 | The Ultimate Destination for Tamil Movie Buffs</h2></div>
+<p>Moviesmon is a notorious website that allows users to download pirated versions of movies and TV shows. The website is known for leaking the latest movies and TV shows within hours of their release, which has caused significant losses to the entertainment industry.</p>
+<p>Moviesmon is a popular website that provides free access to Tamil movies, as well as other South Indian language films. Users can stream and download movies in various formats, including HD, and the site also features a wide range of genres, from action and drama to comedy and romance. </p>
+
+<div class="line">Moviesmon Tamil Mobile Movies Downloads</div>
+
+<div class="f"><img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Moviesmon Latest Movies 2023</a></div> 
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2023 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2022 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2021 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2020 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2019 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2018 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2017 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2016 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2015 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil 2012 Movies</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil Movies Collection</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil Movies [Single Parts]</a> </div>
+
+<div class="f" rel="nofollow noopener sponsored" target="_blank"> <img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil HD Mobile Movies</a> </div>
+
+<div class="f"><img src="images/dir.gif" alt="[+]"> <a href="https://anjeshpatel.in/" rel="nofollow noopener sponsored" target="_blank">Tamil Recent Updates [Daily]</a></div>
+<br>
+
+<div class="Adz" align="center"></div>
+
+
+<div class="aut">Moviesmon Overview</div>
+
+
+<div class="Tag">
+        <p style="text-align: justify;">Moviesmon is a site where you can watch movies online free in HD without annoying ads, just come and enjoy the latest full movies online. You can also download the movies to your pc to watch movies later offline. Our official domain is Moviesmon.techsslash.com please bookmark it and share it with your friends. Moviesmon is an legal website, which uploads in HD Quality all tamil, telgu, Hindi and english movies on its site for download</p>
+        <p style="text-align: justify;">Moviesmon is a popular piracy website that provides users with a vast collection of Tamil and other regional language movies for free download. Despite its illegal nature, Moviesmon has gained a considerable amount of popularity among users who are looking for the latest releases in high quality.</p>
+        
+        </div>
+        
+<div class="aut">Moviesmon Website Details</div>
+<div class="Tag">
+    <p style="text-align: justify;">Moviesmon is a piracy website that provides a large collection of Tamil, Telugu, Malayalam, Hindi, and other language movies for free download. The Moviesmon website offers movies in various formats like HD, Full HD, 480p, 720p, and 1080p. It is known for leaking the latest movies soon after their official release, causing significant losses to the film industry. The site also offers dubbed movies and streaming options, allowing users to watch content online without downloading.</p>
+<style>
+table, th, td {
+  border:1px solid black;
+}
+</style>
+<table style="width:100%"><tbody><tr><td>Name of Website</td><td>Moviesmon</td></tr><tr><td>Website Type</td><td>Torrent & Pirated Websites</td></tr><tr><td>Use</td><td>Download & Watch Movie</td></tr><tr><td>Type of Movie</td><td>Bollywood, Hollywood, Telugu and Tamil </td></tr><tr><td>Categories</td><td>Action, Thriller, Comedy & Drama</td></tr><tr><td>Languages</td><td>English, Hindi, Telugu, Tamil</td></tr><tr><td>Resolution</td><td>360p, 480p, 720p, 1080p, 4k</td></tr></tbody></table>
+</div>
+<br>
+<div class="aut">Moviesmon Tamil Movies Downloading Steps</div>
+<div class="Tag">
+    <p style="text-align: justify;">Moviesmon is a platform that offers a vast collection of movies, web series, and TV shows in multiple languages, including Bollywood, Hollywood, Tamil, and Telugu. The site provides various quality options for content, allowing you to choose according to your device's storage capacity and internet data. However, it is essential to be aware that accessing and downloading content from such websites is illegal and can lead to legal consequences. Here, we will explore the steps to watch and download movies from this website.</p>
+    <ul>
+<li><strong>Step 1</strong> - Start by opening your Google browser on your smartphone or computer and searching for Moviesmon.</li>
+<li><strong>Step 2</strong> - is to click the link of the first result in the list of websites that appears in front of you.</li>
+<li><strong>Step 3</strong> - Now you are at the homepage of the website, you will see the Search Box here, type the name of the movie you wish to watch and the search box will appear.</li>
+<li><strong>Step 4</strong> - You will now see the movie you searched for.</li>
+<li><strong>Step 5</strong> – Browse through the quality download links to find the download you are looking for.</li>
+<li><strong>Step 6</strong> – Choose a link that corresponds to your mobile data and download the movie.</li>
+<li><strong>Step 7</strong> – After clicking the download button, you'll be presented with a number of pop-up ads, which you close.</li>
+<li><strong>Step 8</strong> – Once you have completed this step, your movie will begin to download.</li>
+</ul>
+
+</div>
+<br>
+
+<div class="aut">Page Tags :</div>
+
+<div class="Tag">
+    <font color="green">Moviesmon, <a href="https://anjeshpatel.in/">kuttymovies</a>, <a href="https://anjeshpatel.in/">filmymeet</a>, tamilrockers Moviesmon, Moviesmon movies, Moviesmon com, <a href="https://anjeshpatel.in/">Movierulz apk</a>, Moviesmon tamilrockers, tamil Moviesmon, afilmywap, tamilyogi Moviesmon, Moviesmon tamil movies 2019 download, Moviesmon tamil movies download, Moviesmon 2020, Moviesmon songs, <a href="https://anjeshpatel.in/">isaimini</a> tamil movies, tamil movie download Moviesmon, Moviesmon co, tamilgun Moviesmon, Moviesmon movie download, Moviesmon 2019, Moviesmon com 2019, Moviesmon net, <a href="https://anjeshpatel.in/">isaidub</a>, Moviesmon in, Moviesmon tamil movies 2020 download
+</font>
+
+</div>
+
+<div class="line"> © Moviesmon<br>All Right
+Reserved</div>
+
+
+</body></html>
